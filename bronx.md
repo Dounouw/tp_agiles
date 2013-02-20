@@ -1,3 +1,3 @@
 # Recette de Bronx
 
-À écrire...
+1/4 de cinzano
